@@ -16,7 +16,7 @@ Lo cierto es que el ácido sigue oliendo a ácido y sigue llenando el
 río de la plata como ellos le dicen y no se si lo neutralizan ahí en la 
 costa donde desemboca el caño pero lo cierto es que ya ni pirañas quedan.
 
-El punto es que en europa y [EE.UU](http://adthe.net) las represas grandes como la que hay
+El punto es que en europa y [EE.UU](http://atdhe.net) las represas grandes como la que hay
 en Concordia y Salto en ```el río grande del sur```, están prohibidas por la
 ley debido al daño que ocacionan al ***ecosistema*** de la rejión en especial
 a los ***pescados*** que se van a aparear río arriba. Esto de la represa 
